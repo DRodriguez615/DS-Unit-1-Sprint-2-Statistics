@@ -56,6 +56,7 @@ a gym is a gym/supplements are just supplements,
 What data storytelling example inspires you?
 do supplements really help results of working out/weight lifting?
 
+
 Could you do a new hypothesis, for the same question?
 does creatine/protein help gain solid muscle or just extra (water)weight?
 
